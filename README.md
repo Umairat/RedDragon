@@ -11,11 +11,11 @@ Special
 >
 
 
-## 🪀 [JOIN GROUP](https://chat.whatsapp.com/FORwZVruL31L2BaUCWT1Lp)
-## 🔮 [WEBSITE APPLICATION](http://www.reddragon.uf.uk.eu.org/)
-## 🔮 [CREATE ACCOUNT](http://www.reddragon.uf.uk.eu.org/signup)
-## 🔮 [LOGIN](http://www.reddragon.uf.uk.eu.org/login)
-## 🥰 [DONATE](http://www.reddragon.uf.uk.eu.org/donate)
+## 🪀 [JOIN GROUP](https://chat.whatsapp.com/FORwZVruL31L2aUCWT1Lp)
+## 🔮 [WEBSITE APPLICATION](http://www.redragon.uf.uk.eu.org/)
+## 🔮 [CREATE ACCOUNT](http://www.rdragon.uf.uk.eu.org/signup)
+## 🔮 [LOGIN](http://www.uf.uk.eu.org/login)
+## 🥰 [DONATE](http://www.reragon.uf.uk.eu.org/donate)
 
 <p align="center">
     <img src="https://i.ibb.co/6tCrPD6/image-downloader-1654443961039.gif" alt="nz" width="350"/>
